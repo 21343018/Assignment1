@@ -5,7 +5,7 @@
 > Faculcity of Engineering &nbsp;&middot;&nbsp;
 > Universitas Negeri Padang
 ---
-> File seluruh tugas: https://drive.google.com/drive/folders/1Qxc-Z_J38T2csLf4BVduVeKWBgONIWet?usp=drive_link
+> File seluruh tugas: https://drive.google.com/drive/folders/1v9i4Tz7skqB4nlsJCQZlkVkgNMhV2VC5?usp=sharing
 
 ### Cheers! 😊💗
 ---
